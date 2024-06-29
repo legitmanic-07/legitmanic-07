@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @legitmanic-07
+- 👋 Hi, I’m rahul here also called as (legitmanic-07)
 - 👀 I’m interested in cYbErSeCuRiTy
 - 🌱 I’m currently learning Artifical inteligence and machine learning
 - 💞️ I’m looking to collaborate on ...
